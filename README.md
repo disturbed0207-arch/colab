@@ -1,3 +1,1 @@
-The 17th of May
-
-Colt's birthday is vary soon
+The 17th of May 
